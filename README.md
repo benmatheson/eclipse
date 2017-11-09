@@ -1,0 +1,1 @@
+You can visit a few real eclipse simulators at places like  [https://www.vox.com/science-and-health/2017/7/25/16019892/solar-eclipse-2017-interactive-map](Vox) and [http://time.com/4882923/total-solar-eclipse-map-places-view/](Time.) 
